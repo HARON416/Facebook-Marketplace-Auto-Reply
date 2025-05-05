@@ -25,7 +25,7 @@ Need help with setup? Want to customize it for your use case? Looking for help b
 
 Feel free to reach out:
 
-- 📱 WhatsApp: +254 718 448 461
-- 📧 Email: haronkibetrutoh@gmail.com
+- 📱 WhatsApp: [Click to chat](https://wa.me/254718448461)
+- 📧 Email: [haronkibetrutoh@gmail.com](mailto:haronkibetrutoh@gmail.com)
 
 Happy selling! 🎉
